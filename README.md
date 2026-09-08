@@ -1,4 +1,5 @@
-## Hi there 👋
+ <img width="1000" height="2095" alt="Raibaru_Fumetsu_29" src="https://github.com/user-attachments/assets/1a92b0d4-9c5e-4b03-ab8f-1c7ef7b34f20" />
+ 
 
 <!--
 **barfbunny/barfbunny** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
