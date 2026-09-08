@@ -1,12 +1,11 @@
 <img width="1280" height="480" alt="image" src="https://github.com/user-attachments/assets/5e1b06f4-3cb2-4849-9a47-80184ffd62eb" />
 
+ DNIS:basic dnis.. dni if you do nsfw pony art !!!
+
 
  # fandoms and communities !!! : yanderesim, everymanhybrid, creepypasta, my little pony (G1 G4), the texas chainsaw massacre, extreme horror community, huge johnathan doe fan !!!, horror films and true crime fan, grease!!!, stanley kubrick, a clockwork orange, hemlock grove, she-ra, american horror story, hannibal, game of thrones, adventure time, the boys, beastars, arcane, the penguin and batman 2022..... danonation!!
                                         ────୨ৎ──── 🔪
-                                        *DNIS:basic dnis.. dni if you do nsfw pony art, and dni if you hate christianity or men:3* 😾
-
- 
-
+                                      
 <!--
 **barfbunny/barfbunny** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
