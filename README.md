@@ -1,5 +1,5 @@
- <img width="1000" height="2095" alt="Raibaru_Fumetsu_29" src="https://github.com/user-attachments/assets/1a92b0d4-9c5e-4b03-ab8f-1c7ef7b34f20" />
- ([https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png](https://github.com/user-attachments/assets/1a92b0d4-9c5e-4b03-ab8f-1c7ef7b34f20) =250x250)
+ <img width="200" height="200" alt="Raibaru_Fumetsu_29" src="https://github.com/user-attachments/assets/1a92b0d4-9c5e-4b03-ab8f-1c7ef7b34f20" />
+
  
 
 <!--
