@@ -2,6 +2,8 @@
 
 
  fandoms and communities !!! : yanderesim, everymanhybrid, creepypasta, my little pony (G1 G4), the texas chainsaw massacre, extreme horror community, huge johnathan doe fan !!!, horror films and true crime fan, grease!!!, stanley kubrick, a clockwork orange, hemlock grove, she-ra, american horror story, hannibal, game of thrones, adventure time, the boys, beastars, arcane, the penguin and batman 2022..... danonation!!
+                                        ────୨ৎ──── 🔪
+                                        DNIS: basic dnis.. dni if you do nsfw pony art, and dni if you hate christianity or men:3 😾
 
  
 
