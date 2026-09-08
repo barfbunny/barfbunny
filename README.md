@@ -1,4 +1,5 @@
-<img width="1200" height="488" alt="image" src="https://github.com/user-attachments/assets/2d8ffc6c-9ad9-4e58-ae9a-ba789b9c29d0" />
+<img width="1280" height="480" alt="image" src="https://github.com/user-attachments/assets/5e1b06f4-3cb2-4849-9a47-80184ffd62eb" />
+
 
  fandoms and communities !!! : yanderesim, everymanhybrid, creepypasta, my little pony (G1 G4), the texas chainsaw massacre, extreme horror community, huge johnathan doe fan !!!, horror films and true crime fan, grease!!!, stanley kubrick, a clockwork orange, hemlock grove, she-ra, american horror story, hannibal, game of thrones, adventure time, the boys, beastars, arcane, the penguin and batman 2022..... danonation!!
 
